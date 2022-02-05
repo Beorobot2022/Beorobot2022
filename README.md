@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 <!--
-**Beorobot2022/Beorobot2022** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**Beorobot2022/Beorobot2022** is a great day,,,🍋 _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
